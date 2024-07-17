@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning and exploring web3 
+🌱 Currently learning and exploring web3 
 
 
 ## 🌐 Socials:
